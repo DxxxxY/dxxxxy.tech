@@ -1,2 +1,2 @@
-# dreamys.studio
+# dxxxxy.tech
 One of many personal websites
